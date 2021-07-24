@@ -3,7 +3,7 @@
 
 interests: 
 
-                                    urban hiking, west african music, butt stuff.
+                urban hiking, west african music, butt stuff.
 
 
 
